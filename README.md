@@ -1,3 +1,3 @@
 # DmoGitHub
  
-TrờiTroi ơi
+TrờiTroi ơi làm gì nữa đâysassasas
